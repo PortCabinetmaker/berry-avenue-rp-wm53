@@ -1,4 +1,4 @@
-#  
+#  new Script for berry avenue rp is the best berry avenue rp Script, featuring silent aim and anti-ban. Safe and powerful for all your needs.
 
 
 
